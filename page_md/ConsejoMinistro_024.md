@@ -1,0 +1,1 @@
+<!-- Consejo de Ministros -->  ![Bridge over Tagus River](image01)  *A-66. P.K.520. Viaducto sobre el río Tajo*  ![Aerial view of bridge over Almonte River](image02)  *A-66. P.K.532. Puente sobre el Río Almonte*  ![Spanish Government logo](image03)  **SECRETARÍA DE ESTADO   DE COMUNICACIÓN**  www.lamoncloa.gob.es  <!-- 24 -->
